@@ -1,2 +1,2 @@
 # tamboresdaterra.github.io
-Oficina Terapêutica Tambores da Terra 
+Tambores da Terra - xamanismo matricial 
